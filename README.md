@@ -2,7 +2,6 @@
 
 - 📍 I am from India 🇮🇳 and currently living in British Columbia. 🍁
 - 📫 You can find me on [Twitter](https://dipak.to/twitter), [LinkedIn](https://dipak.to/linkedin) and [email](mailto:hello@dipak.tech)
-- 😄 My Pronouns are he/him/his.
 
 
 
